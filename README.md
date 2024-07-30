@@ -74,7 +74,7 @@ it would probs be better/safer/more efficient/etc in another language
 
 but i just hav this sort of pull to c
 
-the fact u can have an entire wws in a single executable file is just the coolest thing ever
+the fact u can have an entire wws in a single executable file is just the coolest thing ever (you just described what all compiled languages are... relax bud, its cool okay)
 
 and c/c++ is what NASA uses
 
