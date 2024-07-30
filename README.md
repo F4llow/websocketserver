@@ -137,3 +137,17 @@ man i need to learn everything
 but what is the point of learning anything more than system design, etc if chatgpt can do it
 
 disclaimer that i have gpt4 lol :D
+
+but naw just kidding, i will learn everything
+
+or else the gp q irl might come in clutch fr (good luck deciphering this u normie)
+
+wtf am i even talking like this
+
+i swear im smart and normal and spell well (i won the spelling bee in fifth grade)
+
+i can also type well and i just find this easy to get thoughts out
+
+asdf
+
+its fine
