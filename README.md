@@ -84,7 +84,7 @@ my gosh
 
 anyways
 
-our jobs are not done for because everyone is retarted
+our jobs are not done for because everyone is retarded
 
 our jobs as in swe
 
